@@ -1,0 +1,1 @@
+Esse curso está sendo muito enriquecedor, sou iniciante ao extremo e confesso que agora já estou absorvendo melhor os conteúdos.
